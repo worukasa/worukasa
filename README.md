@@ -1,5 +1,5 @@
 <p align="center">
-<img width="700" height="500" alt="2025_12_01_0ts_Kleki" src="https://github.com/user-attachments/assets/ebdcdd21-2e15-4e20-bc11-281789c1cde5" />
+<img width="700" height="500" alt="2026_02_02_0sq_Kleki (3)" src="https://github.com/user-attachments/assets/268af877-40b5-44a7-9fd4-272828980e6c" />
  </p>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <p align="center">
 𝚌 + 𝚑
