@@ -1,5 +1,4 @@
-<img width="974" height="631" alt="2026_04_19_0j0_Kleki" src="https://github.com/user-attachments/assets/64553c74-903c-49ed-aca8-8d14906a22e9" />
-
+<img width="974" height="631" alt="2026_04_19_0jo_Kleki" src="https://github.com/user-attachments/assets/d054f8aa-773d-48ca-8ebc-1f7cc3f95cf7" />
 
 <p align="center">
 ⠀ ⠀ ⠀       ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ (..◜ᴗ◝..)⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀   ◞⠀ ⠀ ⠀ ⠀ ⠀⠀ "𝘐 𝘢𝘮 𝘯𝘰𝘵 𝘢 𝘥𝘰𝘭𝘭."
